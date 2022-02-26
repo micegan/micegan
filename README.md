@@ -1,12 +1,10 @@
-This is a github page of a .net, c#, java, lua... programmer. Keep looking on my projects, you may be interested.
+This is a github page of a .net, c#, java, lua... programer. Keep looking on my projects, you may be interested.
 
-For possible contact: a discord id: micegan#4386 or RareHuman#9532
+For possible contact, the boy, he is not talking: a discord id: micegan#4386 or RareHuman#9532
 
 Donation Link: https://ko-fi.com/micegan
 
-Portfolio website: http://micegansdropouts.rf.gd (may be broken :D)
-
-My spigot: https://www.spigotmc.org/resources/authors/micegan.395752/
+Portfolio website: http://micegansdropouts.rf.gd (may be broken :D It is broken ;( F)
 
 
 <!---

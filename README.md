@@ -6,6 +6,7 @@ Donation Link: https://ko-fi.com/micegan
 
 Portfolio website: http://micegansdropouts.rf.gd (may be broken :D It is broken ;( F)
 
+Ma twitter: https://twitter.com/MiceganA
 
 <!---
 micegan/micegan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

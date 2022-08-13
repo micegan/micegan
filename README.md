@@ -4,8 +4,6 @@ For possible contact, the boy, he is not talking: a discord id: micegan#4386 or 
 
 Donation Link: https://ko-fi.com/micegan
 
-Portfolio website: http://micegansdropouts.rf.gd (may be broken :D It is broken ;( F)
-
 Fiverrrrrr: https://www.fiverr.com/mikestynych
 
 Ma twitter: https://twitter.com/MiceganA
